@@ -23,7 +23,7 @@ Focused on establishing a collaborative culture that creates continuous and iter
 
 ## Outside of Work Interests
 
-- Coach U10 Boys Soccer
+- Coach CC United U10 Boys soccer
 - Caddy for my son and daughter at Minnesota Prep TOUR tournaments
-- Frequent fan at squirt hockey games, girls volleyball matches and gynastics events
+- Frequent fan at CCHA squirt hockey games, girls Vital volleyball matches and Classic Gymnastics events
 - Travel with the family in search of new experiencies and adventures
